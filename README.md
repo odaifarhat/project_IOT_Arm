@@ -21,5 +21,3 @@ Working moments ‪(-_-;)‬
 
 
 ![control](https://user-images.githubusercontent.com/56201060/122629554-7df14d00-d0c6-11eb-8cd2-b48b21787d91.jpg)
-
-
